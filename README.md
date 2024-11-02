@@ -1,0 +1,1 @@
+# vk_internship_11.2024
